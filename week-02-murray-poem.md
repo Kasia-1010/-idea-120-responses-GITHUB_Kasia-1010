@@ -4,6 +4,7 @@ Ones **<sub>_evolved_** by the **<sub>_moving camera_**, with the lens of the br
 ![camera1](https://marshall-usa.com/blog/wp-content/uploads/2018/05/camera-dslr-lens-8964-1-scaled.jpg)
 
 > "Anxiety aroused by fear" - 72pg.
+
 Fear😨 turns into sweet nectar🧋 that roots with the touch of film mix within the 
 
 pixels.
