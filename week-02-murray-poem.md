@@ -16,7 +16,7 @@ cyan,
 
 ```
 
-magenta,
+**magenta,**
 
 ```
 
@@ -24,7 +24,7 @@ yellow,
 
 ```
 
-black,
+**black,**
 
 ```
 
