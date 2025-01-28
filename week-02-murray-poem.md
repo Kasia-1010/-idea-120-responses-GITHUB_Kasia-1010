@@ -12,11 +12,11 @@ Fear😨 turns into sweet nectar🧋 that roots with the touch of film mix withi
 
 `cyan,`
 
-**magenta,**
+`magenta,`
 
 `yellow,`
 
-**black,**
+`black,`
 
 and `white.`
 
