@@ -16,6 +16,14 @@ black,
 
 and white.
 
+With our great evolution, it just keeps going even our 
+
+fears.
+
+dreams.
+
+Just one click away.
+
 
 
 
