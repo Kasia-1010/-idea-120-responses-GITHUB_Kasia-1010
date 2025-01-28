@@ -9,17 +9,17 @@ Fear😨 turns into sweet nectar🧋 that roots with the touch of film mix withi
 
 pixels.
 
-**<sub>_cyan,_**{00FFFF}
+**<sub>_#00FFFF,_**
 
-**<sub>_magenta,_** #FF00FF
+**<sub>_#FF00FF,_** 
 
-**<sub>_yellow,_** #FFFF00
+**<sub>_#FFFF00,_** 
 
-**<sub>_black,_** #000000
+**<sub>_ #000000,_**
 
-and **<sub>_white._** #FFFFFF
+and **<sub>_#FFFFFF._** 
 
-All with code, **<sub>_just one click away._** #0000FF
+All with code, **<sub>_just one click away._** 
 
 
 
