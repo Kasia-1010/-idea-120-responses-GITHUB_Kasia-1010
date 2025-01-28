@@ -9,15 +9,7 @@ Fear😨 turns into sweet nectar🧋 that roots with the touch of film mix withi
 
 pixels.
 
-cyan
-
-magenta
-
-yellow
-
-black
-
-and white
+cy **<sub>_a_** n, m**<sub>_a_**g*  *<sub>_e_**nt *  *<sub>_a_** , y**<sub>_e_** ll **<sub>_o_** w, bl **<sub>_a_** ck, and wh**<sub>_i_** t **<sub>_e_** 
 
 All with code, **<sub>_just one click away._** 
 
