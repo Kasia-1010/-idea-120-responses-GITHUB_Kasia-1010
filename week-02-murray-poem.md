@@ -12,15 +12,15 @@ Fear😨 turns into sweet nectar🧋 that roots with the touch of film mix withi
 
 ```
 
-~cy <sub>_a_ n,~ 
+~cyan,~ 
 
-~m <sub>_a_g<sub>_e_nt*<sub>_a_~
+~magenta,~
 
-~y<sub>_e_ ll~<sub>_o_w,~
+~yellow,~
 
-~bl <sub>_a_ ck,~
+~black,~
 
-and ~wh<sub>_i_ t <sub>_e_ .~
+and ~white.~
 
 ```
 
