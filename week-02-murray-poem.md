@@ -7,15 +7,15 @@ Ones evolved by the moving camera, with the lens of the broken film
 Fear turns into <sub>sweet nectar that <sub>roots with the touch of film mix within the 
 <sub>pixels.
 
-_cyan,_
+<sub>_cyan,_
 
-_magenta,_
+<sub>_magenta,_
 
-_yellow,_
+<sub>_yellow,_
 
-_black,_
+<sub>_black,_
 
-and _white._
+and <sub>_white._
 
 All with code, just one click away.
 
