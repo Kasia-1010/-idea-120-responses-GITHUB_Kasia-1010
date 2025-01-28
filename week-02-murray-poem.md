@@ -1,4 +1,7 @@
 # The **<sub>_G_** r **<sub>_e_** a **<sub>_t_** Evolution 
+
+🌟🌟🌟🌟🌟🌟🌟🌟🌟🌟🌟🌟🌟🌟🌟🌟🌟🌟🌟🌟🌟🌟🌟🌟🌟
+
 Ones **<sub>_evolved_** by the **<sub>_moving camera_**, with the lens of the broken film
  Always on a **<sub>_loop,_** always moving.
  
@@ -12,7 +15,7 @@ Fear😨 turns into sweet nectar🧋 that roots with the touch of film mix withi
 
 (💙`cyan,`)(🩷`magenta,`)(💛`yellow,`)(🖤`black,`)and (🤍`white.`)
 
-All with code, **<sub>_just one click away._** 
+All with code, **<sub>_just one click away._**🌟
 ![spongbob](https://i.pinimg.com/736x/8f/a7/56/8fa75637f712e286d17c9db3af28c50c.jpg)
 
 
