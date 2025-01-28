@@ -5,7 +5,7 @@ Ones evolved by the moving camera, with the lens of the broken film
 > "Anxiety aroused by fear" - 72pg.
 
 Fear turns into <sub>sweet
-nectar that <roots> 
+nectar that <sub>roots 
 with the touch of film mix within the 
 <pixels.>
 
