@@ -9,7 +9,7 @@ Fear😨 turns into sweet nectar🧋 that roots with the touch of film mix withi
 
 **pixels.**
 
-~cy <sub>_a_ n,~  
+~cy <sub>_a_ n,~ 
 
 ~m <sub>_a_g<sub>_e_nt*<sub>_a_~
 
